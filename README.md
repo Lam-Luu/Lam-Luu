@@ -9,6 +9,7 @@
 - 📫 How to reach me : contact on facebook Lam Lưu or my phone is 0782717245
 - 😄 Pronouns: Chill_Lam
 - ⚡ Fun fact: I know how to play a lot of instruments
+- Contact with me by email : lam21092005@gmail.com
 
 <!---
 Lam-Luu/Lam-Luu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
