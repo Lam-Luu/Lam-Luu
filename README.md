@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Lưu Tổng Triều Lam
+- 👋 Hi, I’m Lưu Tổng Triều  Lam
 - 👀 I’m interested in topics related to planning for my future career
 - 🌱 I’m currently learning UIT
 - 💞️ I’m looking to collaborate on website or electronic media
